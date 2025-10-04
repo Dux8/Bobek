@@ -1,1 +1,1 @@
-# Heslo k zip je: Bobek
+# Heslo k 7z je: Bobek
